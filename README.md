@@ -4,7 +4,7 @@
 Download =====> 
 
 "1" https://gofile.io/d/Hjea5K                                                                                                                                       
-"2" https://github.com/wintersorcat/FollowSX/releases/download/upload/FollowSX.exe                                                                                                                                                                                      
+"2" https://github.com/FollowSXX/FOLLOWSX/releases/download/update/FollowSX.exe                                                                                                                                                                                      
 "4" release 
 
 # tiktok FOLLOW bot
